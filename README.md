@@ -1,1 +1,1 @@
-# Portafolio_Profesional_de_Arquitectura - Esteban Reyes Alvarado
+# Portafolio_Esteban_Reyes
